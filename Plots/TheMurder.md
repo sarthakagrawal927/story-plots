@@ -2,6 +2,6 @@
 
 ## The Murder
 
-The breakout starts because of a murder. Our girl after defying all odds against her became the first lawyer since a long time. She defends the accused human. It is claimed that the murder was an inside job and was done by his robot Butler but as it was believed that robots are incapable of such actions, the man was almost considered guilty.
+The breakout starts because of a murder. Our girl after defying all odds against her became the first lawyer since a long time. She defends the accused human. It is claimed that the murder was an inside job and was done by his robot Butler but as it was believed that robots are incapable of such actions, the man was considered guilty.
 
 The accused also had a bad repo so it was just getting obvious.

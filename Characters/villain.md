@@ -9,3 +9,9 @@ The villain wants an extremely reputed violin for his disable daughter (which no
 Throughout his life he had been fulfilling all her wishes because he was extremely rich and powerful. But for this instance he couldn't. He decides to wage a battle as her daughter's condition worsens to get the daughter, but gives the reason to war as he wants to sell the instrument in black market for an extremely high price.
 
 After getting unsuccessful we see him crying in front of daughter with complete regret,. Making it an extremely powerful scene.
+
+The villain started his journey by killing all 4 sons of the drug dealer , establishing him as the ultimate badass.
+
+Has cracked the code for immortality, but didn't share due to population.
+
+He simulated a world in which there is nothing harmful and found surprising results.
