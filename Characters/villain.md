@@ -15,3 +15,7 @@ The villain started his journey by killing all 4 sons of the drug dealer , estab
 Has cracked the code for immortality, but didn't share due to population.
 
 He simulated a world in which there is nothing harmful and found surprising results.
+
+He will end data stealing and monopoly of the large companies and their control over communication.
+
+Villain being a visionary makes people uncomfortable, this makes terrorists like people also uncomfortable.
