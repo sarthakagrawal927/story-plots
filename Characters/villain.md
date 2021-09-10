@@ -19,3 +19,19 @@ He simulated a world in which there is nothing harmful and found surprising resu
 He will end data stealing and monopoly of the large companies and their control over communication.
 
 Villain being a visionary makes people uncomfortable, this makes terrorists like people also uncomfortable.
+
+## Daddy only
+
+The villain should arrive by killing away the drug families. His daughter being a bitch will kill the kids too, which he will not appreciate. When daughter argues that they would turn just like their father is she had left them alive, he says killing is easy we would have just killed them again and she got no right to kill someone who has yet to make their life choices.
+
+Would either be immortal or would have extremely high struggle in finding a girl.
+
+His daughter/son will spiral out of control and will have to put down. He got the daughter from a hooker whom he impregnated.
+
+Will clear all cemeteries as they were a waste of land and will receive ton of backlash because of it.
+
+Will fight against religion really hard and in the end win.
+
+The grey eminence behind many leaders.
+
+Things rich people should not be allowed to exist.
