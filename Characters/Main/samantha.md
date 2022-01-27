@@ -1,6 +1,6 @@
 # Samantha
 
-* 13 year old, highly intelligent , big fan of Sherlock Holmes and other famous detectives. Considers life a game. Born to a rich family and curious as hell.
+* 16 year old, highly intelligent , big fan of Sherlock Holmes and other famous detectives. Considers life a game. Born to a rich family and curious as hell.
 
 * Highly intelligent, curious , good thinking skills
 

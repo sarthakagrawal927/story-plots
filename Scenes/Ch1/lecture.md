@@ -4,4 +4,4 @@ A guy after endlessly struggling through a college recorded course video shouts 
 
 Stunned by what had just happened he saw that they lecture duration also increased by a minute. So to make sense of things he tried again this time to ask a doubt, to his utter surprise he got answered. He started freaking out and went out for a walk , when a friend of his got to him and said he was just viewing this recorded lecture a day ago and heard him shout Mf and asking doubts in the lecture.
 
-Getting more and more puzzled by this he decided to .....
+This was due to the opened portal, created by the younger brother to travel back. Comedy scene in future when the portal is reactivated & they are testing the screen shouting at professor.

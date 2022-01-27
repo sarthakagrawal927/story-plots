@@ -5,10 +5,10 @@
 * Rylan
 * Axel
 * Jareth
-* Emmet
+* Emmet - friend of Samantha
 * Zane
-* Skyler
-* Sal
+* Skyler - old brother
+* Sal - young brother
 * Andrew
 * Edward
 * Alec
