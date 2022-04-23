@@ -18,6 +18,8 @@ A book which depicts "in time" concept and gives everyone equal amount of time a
 
 He will end data stealing and monopoly of the large companies and their control over communication.
 
+Thinks of committing suicide after the killings his wife's murderers but couldn't. In the battle he was shot multiple times but regained health super quickly because of the serum.
+
 ## Daddy only
 
 Early life as a regular biochemist scientist looking for a cure for his dying wife. Found the cure but the bad people had killed his wife before only to obtain the solution. Due to which he takes the solution himself & kills everyone.
@@ -32,4 +34,4 @@ Will fight against religion really hard and in the end win.
 
 The grey eminence behind many leaders.
 
-Things rich people should not be allowed to exist.
+Thinks rich people should not be allowed to exist.
