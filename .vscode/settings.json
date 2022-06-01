@@ -1,6 +1,9 @@
 {
-    "cSpell.words": [
-        "Jareth",
-        "Rylan"
-    ]
+  "cSpell.words": ["Jareth", "Rylan"],
+  "grammarly.selectors": [
+    {
+      "language": "markdown",
+      "scheme": "file"
+    }
+  ]
 }
