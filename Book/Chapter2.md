@@ -1,0 +1,7 @@
+# Chapter 2 - Samantha
+
+Despite what people believed, time travel indeed was now possible. The government, as usual, decided to take control of the project and hide it from the general public. They chose to use the time machine to get more information about history. Malcolm was always intrigued about the past, so he sent a human-looking robot to accompany the historian. The historian was well known among his peers and had a younger brother, Marcus. Marcus looked very similar to his brother and was tired of living in the shadow of his over successful brother. When his brother got the job of going to the past, it was the last straw. Marcus already hated the present and spent away a lot of time thinking about the past. He took advantage of the ongoing killing spree and killed off his brother. Soon AICorps called back most of the household robots to control the situation.
+
+The platoon of Marcus and the robot went back to the year 2022 to collect data. Shortly after they landed, Marcus decided to destroy the robot and flee away, leaving the time machine unattended. The machine had landed behind the school in which Samantha studied. Samantha was not an ordinary girl conceivably: she was a prodigy like her parents. She was brilliant in Maths and Sciences, super curious & a huge fan of detective movies.
+
+As the classes were boring, she dreamt about what life in 2122 would look like: [INSERT SOME FUTURISTIC SHIT]. The time travel created a temporary glitch in the linearity of time, causing her to get a glimpse of the future which startled her.
